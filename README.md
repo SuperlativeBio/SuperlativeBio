@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SuperlativeBio
-- 👀I am interested in how blockchain, AI, computer vision, and newer technologies are being applied in the pharmaceuticals space. I work on the manufacture of biological products, human cell & tissue-derived products, & small molecul
+- 👀I am interested in how blockchain, AI, computer vision, and newer technologies are being applied in the pharmaceuticals space. I work on the manufacture of biological products, human cell & tissue-derived products, small molecules, and digital health products.
 
 - 📫 Please contact me at jtarsio@twcny.rr.com (personal email) or tarsiojf@superlativebio.rr.com (work email), or for both through my mobile phone at +1 315-383-3496 EST.
 
